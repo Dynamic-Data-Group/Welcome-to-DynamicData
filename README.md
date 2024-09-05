@@ -4,6 +4,10 @@ We are a consulting agency that helps build an assortment of scritps and apps  <
 
 
 
+Book a time to chat with us <Br>
+https://meetings.hubspot.com/davidprchal/disco-gh <Br>
+
+
 -------------
 Contact info <Br>
 https://www.dynamicdatagroup.com/ <Br>
